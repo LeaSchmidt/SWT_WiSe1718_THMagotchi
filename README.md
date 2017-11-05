@@ -1,0 +1,1 @@
+# SWT_WiSe1718_THMagotchi
